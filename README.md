@@ -1,7 +1,7 @@
 ## ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𓏵 DAMIENS INFO  .ᐟ.ᐟ
 
 
-⸝⸝to start, I am 17 years old, keep this in mind before interacting with me !
+⸝⸝to start, I am 17 years old, and taken by my partner bambi/faye, keep this in mind before interacting with me !
 
 ⸝⸝before you interact with me, please read my strawpage, especially the dni / boundaries page. 
 
