@@ -1,7 +1,7 @@
 ## ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𓏵 DAMIENS INFO  .ᐟ.ᐟ
 
 
-⸝⸝ to start, I am 18 years old, keep this in mind before interacting with me !
+⸝⸝ to start, I am 18 years old, keep this in mind before interacting with me, please dni if younger than 16 !
 
 ⸝⸝ before you interact with me, please read my strawpage, especially the dni / boundaries page. 
 
