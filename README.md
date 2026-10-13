@@ -1,7 +1,7 @@
 ## ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𓏵 DAMIENS INFO  .ᐟ.ᐟ
 
 
-⸝⸝ to start, I am 18 years old, keep this in mind before interacting with me, please dni if younger than 16 !
+⸝⸝ to start, I am 18 years old, keep this in mind before interacting with me, please dni if younger than 17, I'd rather not befriend someone significantly younger. 
 
 ⸝⸝ before you interact with me, please read my strawpage, especially the dni / boundaries page. 
 
@@ -9,4 +9,6 @@
 
 ⸝⸝ I am afk a LOT, feel free to whisper me if I don't respond. I'm always welcome to making friends, especially on discord & ponytown, so feel free to add me, dm or talk to me whenever. 
 
-⸝⸝ do NOT make sexual jokes or bring up sexual topics around or to me, especially if you're a minor.
+⸝⸝ do NOT make sexual jokes or bring up sexual topics around or to me if you're a minor.
+
+⸝⸝ I don't mind flirting, sexual or inappropriate jokes if you're 18+, if not, then avoid making those jokes/comments around me.
